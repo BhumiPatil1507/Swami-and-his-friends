@@ -1,6 +1,8 @@
 # Swami-and-his-friends
 CHAPTER I 
+
 Monday Morning 
+
 It was Monday morning. Swaminathan was reluctant to open his eyes. He 
 considered Monday specially unpleasant in the calendar. After the delicious 
 freedom of Saturday and Sunday, it was difficult to get into the Monday mood of 
