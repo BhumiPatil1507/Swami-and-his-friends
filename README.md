@@ -1,4 +1,4 @@
-# Swami-and-his-friends
+# Swami-and-friends
 CHAPTER I 
 
 Monday Morning 
@@ -226,3 +226,180 @@ Swaminathan furtively glanced at Ebenezar, who writhed in his chair.
 to go to your father about this simple matter. I shall look into it. Take this letter to 
 your father. 
 Swaminathan took the letter and shot out of the room with great relief. 
+
+CHAPTER II 
+
+Rajam and Mani 
+
+RIVER SARAYU was the pride of Malgudi. It was some ten minutes walk from 
+Ellaman Street, the last street of the town, chiefly occupied by oilmongers. Its sand
+banks were the evening resort of all the people of the town. The Municipal 
+President took any distinguished visitor to the top of the Town Hall and proudly 
+pointed to him Sarayu in moonlight, glistening like a silver belt across the North. 
+The usual evening crowd was on the sand. Swaminathan and Mani sat 
+aloof on a river-step, with their legs dangling in water. The peepul branches 
+overhanging the river rustled pleasantly. A light breeze played about the boughs 
+and scattered stray leaves on the gliding stream below. Birds filled the air with their 
+cries. Far away, near Nallappa's Mango Grove, a little downstream, a herd of cattle 
+was crossing the river. And then a country cart drawn by bullocks passed, the cart
+man humming a low tune. It was some fifteen minutes past sunset and there was a 
+soft red in the West. 
+'The water runs very deep here, doesn't it?' Mani asked. 
+'Yes, why?' 
+'I am going to bring Rajam here, bundle him up, and throw him into the 
+river.' 
+Rajam was a fresh arrival in the First A. He had sauntered into the class on 
+the reopening day of the Second Term, walked up to the last bench, sat beside 
+Mani, and felt very comfortable indeed till Mani gave him a jab in the ribs, which he 
+returned. He had impressed the whole class on the very first day. He was a new
+comer; he dressed very well--he was the only boy in the class who wore socks and 
+shoes, fur cap and tie, and a wonderful coat and knickers. 
+He came to the school in a car. As well as all this, he proved to be a very 
+good student too. There were vague rumours that he had come from some English 
+boys' school somewhere in Madras. He spoke very good English, 'Exactly like a 
+"European"'; which meant that few in the school could make out what he said. 
+Many of his class-mates could not trust themselves to speak to him, their fund of 
+broken English being small. Only Sankar, the genius of the class, had the courage 
+to face him, though his English sounded halting and weak before that of Rajam. 
+This Rajam was a rival to Mani. In his manner to Mani he assumed a 
+certain nonchalance to which Mani was not accustomed. If Mani jabbed, Rajam 
+jabbed; if Mani clouted, he clouted; if Mani kicked, he kicked. If Mani was the 
+overlord of the class, Rajam seemed to be nothing less. 
+And add to all this the fact that Rajam was a regular seventy percenter, 
+second only to Sankar. There were sure indications that Rajam was the new power 
+in the class. Day by day as Mani looked on, it was becoming increasingly clear that 
+a new menace had appeared in his life. 
+All this lay behind his decision on the river-step to bundle up Rajam and 
+throw him into the river. Swaminathan expressed a slight fear: "You forget that his 
+father is the police superintendent.' Mani remained silent for a while and said, What 
+do I care? Some night I am going to crack his shoulders with my clubs.' 
+'If I were you, I would keep out of the way of policemen. They are an awful 
+lot,' said Swaminathan. 
+'If you were me! Huh! But thank God I am not you, a milk-toothed coward 
+like you.' 
+Swaminathan bit his lips and sighed. 
+'And that reminds me,' said the other, 'you are in need of a little warning. I 
+find you hanging about that Rajam a bit too much. Well, have a care for your limbs. 
+That is all I can say.' 
+Swaminathan broke into loud protestations. Did Mani think that 
+Swaminathan could respect anyone but him, Mani the dear old friend and guide? 
+What made him think so? As far as Swaminathan could remember, he had never 
+been within three yards of Rajam. Oh, how he hated him! 
+That vile upstart! When had Mani seen him with Rajam? Oh, yes, it must 
+have been during the Drawing period on Monday. It wa s Rajam who had come 
+and talked to him in spite of the cold face that Swaminathan had turned to him. 
+That ass had wanted a pencil sharpener, which he did not get, as he was 
+promptly directed to go to a shop and buy it if he needed it so urgently. Oh, there 
+was no comparison between Rajam and Mani. 
+This pleased Mani greatly. For the first time that evening he laughed, and 
+laughed heartily too. He shook Swaminathan and gave such an affectionate twist to 
+his ear that Swaminathan gave a long howl. And then he suddenly asked, 'Did you 
+bring the thing that I wanted?' 
+'Oh, Mani! I beg a hundred pardons of you. My mother was all the time in 
+the kitchen. I could not get it.' ('It' referred to lime pickles.) 
+'You are a nasty little coward--Oh, this riverbank and the fine evening. How 
+splendid it would have been!...' 
+Swaminathan was to act as a cord of communication between Rajam and 
+Mani. They were sitting in the last bench with their backs against the yellow wall. 
+Swaminathan sat between Rajam and Mani. Their books were before them on the 
+desks; but their minds were busy. 
+Mani wrote on a piece of paper 'Are you a man?' and gave it to 
+Swaminathan, who pushed it across to Rajam, putting on as offensive a look as 
+possible. Rajam read it, crumpled it, and threw it away. At which Mani wrote 
+another note repeating the question, with the addition 'You are the son of a dog if 
+you don't answer this,' and pushed it across. Rajam hissed into Swaminathan's 
+face, 'You scoundrel, don't disturb me,' and crumpled the letter. 
+Further progress was stopped. 
+'Swaminathan, stand up,' said the teacher. Swaminathan stood up 
+faithfully. 
+'What is Lisbon famous for?' asked the teacher. 
+Swaminathan hesitated and ventured, 'For being the capital of Spain.' 
+The teacher bit his moustache and fired a second question, 'What do you 
+know about the Indian climate?' 
+'It is hot in summer and cold in winter.' 
+'Stand up on the bench!' roared the teacher. And Swaminathan stood up 
+without a protest. He was glad that he was given this supposedly degrading 
+punishment instead of the cane. 
+The teacher resumed his lessons: Africa was a land of forests., Nile was 
+the most important river there. Did they understand? What did he say? He selected 
+someone from the first bench to answer this question. (Nile was the most important 
+river in Africa, the boy answered promptly, and the teacher was satisfied.) What 
+was Nile? (The most important river in Africa, a boy answered with alacrity and was 
+instantly snubbed for it, for he had to learn not to answer before he was asked to.) 
+Silence. Silence. Why was there such a lot of noise in the class? Let them go on 
+making & noise and they would get a clean, big zero in the examination. He would 
+see to that. 
+Swaminathan paid no attention to the rest of the lessons. His mind began 
+to wander. Standing on the bench, he stood well over the whole class. He could 
+see so many heads, and he classified them according to the caps: there were four 
+red caps, twenty-five Gandhi caps, ten fur caps, and so on. 
+When the work for the day was over, Swaminathan, Mani, and Rajam, 
+adjourned to a secluded spot to say what was in their minds. Swaminathan stood 
+between them and acted as the medium of communication. They were so close 
+that they could have heard each other even if they had spoken in whispers. But it  
+was a matter of form between enemies to communicate through a medium. Mani 
+faced Swaminathan steadily and asked, 'Are you a man?' 
+Swaminathan turned to Rajam and repeated, 'Are you a man?' 
+Rajam flared up and shouted, 'Which dog doubts it?' 
+Swaminathan turned to Mani and said ferociously, 'Which dirty dog doubts 
+it?' 
+'Have you the courage to prove that you are a man?' asked Mani. 
+Swaminathan turned to Rajam and repeated it. 
+'How?' 
+'How?' repeated Swaminathan to Mani. 
+'Meet me at the river, near Nallappa's Grove, to-morrow evening.' 
+'Near Nallappa's Grove,' Swaminathan was pleased to echo. 
+'What for?' asked Rajam. 
+To see if you can break my head.' 
+'Oh, to pieces,' said Rajam. 
+Swaminathan's services were dispensed with. They gave him no time to 
+repeat their words. Rajam shouted in one ear, and Mani in the other. 
+'So we may expect you at the river to-morrow,' said Swaminathan. 
+'Yes,' Rajam assured them. 
+Mani wanted to know if the ether would come with guards. No, he would 
+not. And Mani voiced another doubt: 'If anything happens to you, will you promise 
+to keep it out of your father's knowledge?' Rajam promised, after repudiating the 
+very suggestion that he might act otherwise. 
+Nallappa's Grove stood a few yards before them. It was past six and the 
+traffic for the day between the banks was over. The usual evening crowd was far 
+behind them. Swaminathan and Mani were squatting on the sand. They were 
+silent. Mani was staring at the ground, with a small wooden club under his arm. He 
+was thinking: he was going to break Rajam's head in a short while and throw his 
+body into the river. But if it should be recovered? But then how could they know 
+that he had done it? But if Rajam should come and trouble him at night as a spirit? 
+Since his grandfather's death, he was sleeping alone. What if Rajam should come 
+and pull his hair at night? After all it would be better not to kill him. He would 
+content himself with breaking his limbs and leaving him to his fate. If he should 
+batter his head, who was going to find it out? Unless of course--He cast a sly look 
+at Swaminathan, who was blinking innocently.... 
+Unless of course Swaminathan informed the police. 
+At the sound of the creaking of boots, they turned and found that Rajam 
+had come. He was dressed in khaki, and carried under his arm an air-gun that was 
+given to him a couple of months ago on his birthday. He stood very stiff and said: 
+'Here I am, ready.' 
+'You are late.' 
+'Yes.' 
+'We will start.' 
+Rajam shouldered his gun and fired a shot in the air. Mani was startled. He 
+stood still, his club down. 
+'You heard the shot?' asked Rajam. The next is going to be into your body, 
+if you are keen upon a fight.' 
+'But this is unfair. I have no gun while you have.... It was to be a hand-to
+hand fight.' 
+Then, why have you brought your club? You never said anything about it 
+yesterday.' 
+Mani hung down his head. 
+'What have I done to offend you?' asked Rajam. 
+'You called me a sneak before someone.' 
+'That is a lie.'  
+There was an awkward pause. 'If this is all the cause of your anger, forget 
+it. I won't mind being friends.' 
+'Nor I,' said Mani. 
+Swaminathan gasped with astonishment. In spite of his posing before 
+Mani, he admired Rajam intensely, and longed to be his friend. Now this was the 
+happiest conclusion to all the unwanted trouble. He danced with joy. 
+Rajam lowered his gun, and Mani dropped his club. To show his goodwill, 
+Rajam pulled out of his pocket half a dozen biscuits. 
+The river's mild rumble, the rustling of the peeyul leaves, the half-light of 
+the late evening, and the three friends eating, and glowing with new friendship-
+Swaminathan felt at perfect peace with the world. 
